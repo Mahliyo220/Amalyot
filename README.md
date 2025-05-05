@@ -1,0 +1,2 @@
+# Amalyot
+dars uchun
